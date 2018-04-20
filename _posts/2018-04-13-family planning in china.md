@@ -22,7 +22,7 @@ description: 哪管真理无穷，进一寸有一寸欢喜
 
 ## A bitter pill
 
-Bizarrely, the party still believes that coercion remains necessary. Those who have had two children in violation of the previous policy will still have to pay off their fines. It is likely that those who have three children will be punished. There is no evidence that lifting these controls would result in a crippling population surge. So the party’s insistence on maintaining them appears mostly a way of demonstrating power and saving face—as well as the jobs of the 1m-strong army of family-planning officials, who thrive on issuing fines.
+　　Bizarrely, the party still believes that coercion remains necessary. Those who have had two children in violation of the previous policy will still have to pay off their fines. It is likely that those who have three children will be punished. There is no evidence that lifting these controls would result in a crippling population surge. So the party’s insistence on maintaining them appears mostly a way of demonstrating power and saving face—as well as the jobs of the 1m-strong army of family-planning officials, who thrive on issuing fines.
 
 　　The party would struggle to admit that the world’s biggest attempt at demographic engineering has failed. But that is what it must do by lifting the remaining restrictions. Not for the sake of boosting the birth rate—it may well be too late for that. Rather because, after forcing so many Chinese to suffer to such little effect, a disastrous policy deserves to be abolished.
 
