@@ -1,9 +1,9 @@
-﻿---
+---
 layout: post
 title: 蓝牙设备干扰探讨
 date: 2018-4-12
 categories: blog
-tags: [生活,效率]
+tags: [充电]
 description: 哪管真理无穷，进一寸有一寸欢喜
 ---
 
