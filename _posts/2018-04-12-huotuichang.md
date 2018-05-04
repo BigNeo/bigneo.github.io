@@ -1,9 +1,9 @@
-﻿---
+---
 layout: post
 title: 小品：《一根火腿肠》
 date: 2018-4-12
 categories: blog
-tags: [生活,叨叨]
+tags: [叨叨]
 description: 我给春晚投个稿
 ---
 
